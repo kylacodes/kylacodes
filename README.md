@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kylacodes
+- 👀 I’m interested in working with Cryptocurrency & Blockchain Technology.
+- 🌱 I’m currently learning a certificate in Certified Blockchain Expert
+- 💞️ I’m looking to collaborate on Cryptocurrency investigations/ OSINT Investigations
+- 📫 How to reach me info@cryptocodes.co.za
+- Thank you for reading my short introduction.
+- 
